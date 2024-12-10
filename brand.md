@@ -7,3 +7,7 @@ You can use it for anything. It's free. No problem. We agree. We sign on the dot
 We promise we will never sue anyone for using our brand. We don't care. We'll block you on Facebook, but we won't sue :)
 
 Everything is open source. We give back. We believe in open source brands. I learned about it in my MA at Sofia University, and I stand by it today. 
+
+So use our logo. Post about it. Edit it. Remix it. Fuck the licenses. Everything is free. Open Source The World 🌎 :)
+ 
+ 
